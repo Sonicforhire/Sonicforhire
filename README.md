@@ -1,6 +1,6 @@
 Hey, I’m Shiwei. I go by Sonicforhire on the internet.
 I’m interested in Anime, Coding, and graduating from Highschool, and forgetting about everything that happened while I was in it.
-Model UN sucks. Debate is sus, and I want to spend the rest of Highschool vibing to music and doing Computer Programming
+I wish to spend the rest of Highschool vibing to music and doing Computer Programming
 
 - 🌱 I’m currently learning Coding, Japanese, Latin, Piano, Cello, Mathematics, Music Theory, and more resume padding.
 - 📫 shiweichen06@gmail.com
